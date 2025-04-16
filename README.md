@@ -4,4 +4,4 @@ Free Renaissance — is a group of translators from Japanese, Italian, Latin, Gr
 
 For now, the site is in closed Alpha State. Sorry.
 
-The site is going to be launched on 16 of April 2025.
+The site is going to be launched on 20 of April 2025.
